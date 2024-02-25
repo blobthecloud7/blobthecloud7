@@ -1,4 +1,1 @@
-i make gms2 stuff
-and
-i like pizza tower
-also oneshot
+i make gms2 stuff. that's pretty much it i guess.
