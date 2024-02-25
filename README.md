@@ -1,4 +1,4 @@
-hi guys
-i am blobthecloud7
-
-i like Pizza Tower, OneShot and uhhh i forgot :))))
+i make gms2 stuff
+and
+i like pizza tower
+also oneshot
